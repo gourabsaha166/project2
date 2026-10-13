@@ -1,3 +1,3 @@
 # Project
 
-This project is no joke. It shall save the life of Latika Gaurangi alias anna.
+This project is no joke. It shall save the life of anna.
